@@ -1,5 +1,4 @@
-<div align="center">
-  <img src="https://i.postimg.cc/nLxjBrDC/cloud-div-thing.png">          
+         
 
 </div>
 
@@ -14,9 +13,13 @@
   <img src="https://img.sanishtech.com/u/2aff5fe6e63245daabdde0c42363ba17.png">
 </div>
 
+ can he stop being silly
 
-   can he stop being silly
+<br/><div align="center">
+  <img src="https://img.sanishtech.com/u/bb5f86f7013efe1bafb3aa59cb6fa5d2.png">
+</div>
 
+um grisjin oke shh
 
 <br/><sub>[ATABOOK](https://kindatired.atabook.org/)  [︶ . ︵](https://github.com/CATAL0G)          [STRAWPAGE](https://httpsjabberwongerstrawpage.straw.page)</sub>
 
@@ -27,4 +30,4 @@
 </div>
 
 <div align="center">
-  <img src="https://dividers
+  <img src="https://di    
