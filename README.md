@@ -21,6 +21,8 @@
 
 um grisjin oke shh
 
+(I FORGOT GRIS SCAR NOOO)
+
 <br/><sub>[ATABOOK](https://kindatired.atabook.org/)  [︶ . ︵](https://github.com/CATAL0G)          [STRAWPAGE](https://httpsjabberwongerstrawpage.straw.page)</sub>
 
 </div>
